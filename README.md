@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @OSMcodeGame, a main member of ◈xre™
-- 📫 Contact the team by our Discord [https://discord.gg/ravbjSgs2P]
+- 📫 Contact the team from our Discord [https://discord.gg/s7tJkUDggd]
